@@ -2,7 +2,7 @@
 - 👀 I’m interested in meeting new people
 - 🌱 I’m currently onboarding to Wealthsimple!!!  
 - 💞️ I’m looking to collaborate with new people
-- 📫 How to reach me message my slack  
+- 📫 To reach me message my slack  
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like Pizza!!!
 
